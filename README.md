@@ -6,4 +6,4 @@ I hope that I will be useful for you on each and every day.
 
 Happy coding master :)
 
-See you....
+All the best
